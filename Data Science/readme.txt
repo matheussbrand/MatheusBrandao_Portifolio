@@ -1,1 +1,0 @@
-This folder will only be for data science projects
