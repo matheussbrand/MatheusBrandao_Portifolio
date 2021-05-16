@@ -12,7 +12,7 @@ I'm waiting: D
 Contacts 
 E-mail: matheussbrand@gmail.com
 
-Telegram | Whatsapp: +55 21 98777-3515
+Telegram | Whatsapp
 
 Linkedin: https://www.linkedin.com/in/matheussbrandao/
 
